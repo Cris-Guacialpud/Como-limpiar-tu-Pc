@@ -1,1 +1,0 @@
-# Como-limpiar-tu-Pc
